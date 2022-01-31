@@ -1,0 +1,2 @@
+# mine
+good for all
